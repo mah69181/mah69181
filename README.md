@@ -1,0 +1,9 @@
+Gabriel Hi, I’m mah69181
+-                                                                          I'm interesat de ...                                                                        
+-                                                                         Im în prezent învățare ...                                                                       
+-                                                                         Im caută să colaboreze pe ...                                                                       
+24094459
+<!---
+mah69181/mah69181 este un depozit special ✨ deoarece README.md (acest fișier) apare pe profilul dvs. GitHub.
+Puteți face clic pe link-ul de previzualizare pentru a arunca o privire la modificările dumneavoastră.
+--->
